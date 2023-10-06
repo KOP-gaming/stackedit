@@ -20,7 +20,9 @@
 - steden kwamen onder leiding van "schepenen"
 - - lees rijke burgers
 - - hadden het bestuur EN de rechtspraak in de stad in eigen hand
-- 
+in de 14de eeuw kwam er een einde aan de bevolkingsgroei
+-   hongersnoden en pestepidemieën
+- verstedelijking en 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTMxNTE4NTUwOV19
+eyJoaXN0b3J5IjpbNzA5MTYyNzA4LDEzMTUxODU1MDldfQ==
 -->
